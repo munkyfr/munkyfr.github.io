@@ -1,2 +1,12 @@
-MY LINKS n CRAP
-[![twitter](https://image.flaticon.com/icons/png/512/124/124021.png)](https://twitter.com/munkyfr_)
+##### MY LINKS n CRAP
+-[Twitter](https://twitter.com/munkyfr_)
+
+-[Instagram](https://www.instagram.com/munkyfr_/)
+
+-[Youtube](https://www.youtube.com/channel/UC7eN_vO5lSEOcTl5OsUrGSA)
+
+-[Twitch](https://www.twitch.tv/munkyfr)
+
+-[Github](https://github.com/munkyfr)
+
+-[Tiktok (but why???)](https://www.tiktok.com/@munkyfr)
