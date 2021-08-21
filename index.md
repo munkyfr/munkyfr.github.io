@@ -7,6 +7,10 @@
 
 -[Twitch](https://www.twitch.tv/munkyfr)
 
+-[Tiktok (but why???)](https://www.tiktok.com/@munkyfr)
+
+-[Gamebanana](https://gamebanana.com/members/1930849)
+
 -[Github](https://github.com/munkyfr)
 
--[Tiktok (but why???)](https://www.tiktok.com/@munkyfr)
+-[Steam](https://steamcommunity.com/id/munkyfr/)
